@@ -1,1 +1,2 @@
+Matthias Thermote
 Jonas Vanhoutte

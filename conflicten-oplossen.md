@@ -1,3 +1,4 @@
+Christian Lemay
 Matthias Thermote
 Jonas Vanhoutte
-Christian Lemay
+
